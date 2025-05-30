@@ -7,5 +7,3 @@ Donate to fund me! (**paypal**) >.<: https://paypal.me/Timthespamgaming
 
 Thank you so much for using my client! ˶ˆᗜˆ˵ 
 
-#### ദ്ദി(｡•̀ ,<)~✩‧₊
-
